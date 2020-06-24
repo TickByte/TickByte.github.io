@@ -1,1 +1,2 @@
 # My first title
+Homer verfügt über eine ziemlich schlichte Garderobe – in fast allen Folgen der Serie trägt er eine blaue Hose und ein weißes kurzärmeliges Hemd. Dank seiner Vorliebe für Donuts und Duff-Bier neigt das Oberhaupt der Familie Simpson zu starkem Übergewicht.
